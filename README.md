@@ -20,7 +20,7 @@ Saya adalah **Developer Arcadia** yang menggabungkan **Tenaga Manusia** dengan *
 
 ### ⚡ Fun Facts (Fakta Menarik)
 
-* Saya seorang **Apatheist**. Hidup di lingkungan yang mayoritas Muslim adalah tantangan yang menarik—tapi itulah saya! Fokus saya tetap pada pembangunan dan kode.
+* Saya seorang **Apatheist**. Hidup di lingkungan yang mayoritas Muslim adalah tantangan yang menarik, but thats me, Fokus saya tetap pada pembangunan dan kode.
   
 ---
 
